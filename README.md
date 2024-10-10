@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jespinot01
+- 👀 I’m interested in everything related to IT
+- 🌱 I’m currently studiying multiplatform developer
+- 💞️ I’m looking to collaborate on any project you thing I can be util
+- 📫 How to reach me: jespinot05@gmail.com
